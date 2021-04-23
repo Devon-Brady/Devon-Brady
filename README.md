@@ -1,4 +1,4 @@
-<h1 align="center">Hi 👋, I'm Devon Brady</h1>
+<h1 align="center">Hi 👋, I'm Devon</h1>
 <h3 align="center">A passionate frontend developer from Ohio looking to become an amazing developer</h3>
 
 - 🌱 I’m currently learning **React,Redux,JavaScript,Many Many more languages!**
