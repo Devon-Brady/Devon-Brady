@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **Devon.A.Brady@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1c1OJfHj4znKVRTVQU98DTktSMLX38ElpMP_9p5IeygQ/edit?usp=sharing](https://docs.google.com/document/d/1c1OJfHj4znKVRTVQU98DTktSMLX38ElpMP_9p5IeygQ/edit?usp=sharing)
+- 📄 Know about my experiences [My Resume!](https://docs.google.com/document/d/1c1OJfHj4znKVRTVQU98DTktSMLX38ElpMP_9p5IeygQ/edit?usp=sharing)
 
 - ⚡ Fun fact **I love online PC Gaming. I play a lot of online games feel free to ask me about some!**
 
